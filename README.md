@@ -1,4 +1,9 @@
 # hello-world
 just a another repository
 
-just to make a pull 
+hi human
+
+Odair here, im into viedo game,and learning how to code
+im better at video gaming then im at coding 
+
+
